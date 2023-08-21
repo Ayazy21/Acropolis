@@ -1,5 +1,5 @@
 ---
-title:What is Stoicism - John Sellars
+title:What is Stoicism 
 ---
 
 # What is Stoicism - John Sellars
