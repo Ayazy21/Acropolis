@@ -20,7 +20,7 @@ Jealousy is often associated with relationships, mostly romantic. Envy encompass
 
 Jealousy is rotted in **DESIRE** while Envy is rooted in **RESENTMENT**.
 
-[[Letting Go of Resentment||Resentment]] is THE diabolical sin because it's not enough for me to have what I have. It's not enough for me to be HAPPY with what I already have. This is when you breach Stoicism's words. This is when you start to DESIRE preferred indifference, and you RESENT people who have them. 
+Resentment is THE diabolical sin because it's not enough for me to have what I have. It's not enough for me to be HAPPY with what I already have. This is when you breach Stoicism's words. This is when you start to DESIRE preferred indifference, and you RESENT people who have them. [[Letting Go of Resentment]]
 
 This is also when you start becoming dependent on other's people's happiness and success. That is, you are sad when they are happy. When you see them flourishing, it breaks you down.
 
