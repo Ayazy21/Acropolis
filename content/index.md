@@ -10,4 +10,4 @@ title: Acropolis
 A courtyard is an open-air area surrounded by tall walls or tall buildings. It is typically located in the center of a bustling city or town as seen in the ancient cities of Rome and Greece. A place used for relaxation and communication, it can provide solace in troubled times. 
 The invitation of natural light and fresh air keeps the area bright and cool for even the hottest of days. This relaxing space is where I have chosen to organize my chaotic [[labyrinth]] of thoughts and ideas. They all exist in harmony and converge here. 
 
-[Get started here](content/Get%20started%20here.md)
+[[Get started here]]
