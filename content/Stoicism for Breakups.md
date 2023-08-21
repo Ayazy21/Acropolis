@@ -3,7 +3,7 @@ title: Acropolis
 ---
 
 
-Why does breakup so hurt? Falling in love is a very intense experience. That is, at the very beginning, your entire life becomes consumed by that one person. You think of them at all times and your whole universe narrows into a pinpoint. 
+Why does breakups hurt? Falling in love is a very intense experience. That is, at the very beginning, your entire life becomes consumed by that one person. You think of them at all times and your whole universe narrows into a pinpoint. 
 
 What is Love? A series of chemical reactions for the purpose of bonding. That the key word isn't it? Bonding. You BOND with this person. You want to form a connection and when you've established that during the honeymoon phase, it's hard to let go. 
 
