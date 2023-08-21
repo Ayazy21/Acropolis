@@ -8,7 +8,7 @@ Jealousy and Envy seem to be the same things and often we use the two terms inte
 
 Jealousy can be rooted in greed. That is, jealousy is rooted in the intention to guard what one possesses or what one hopes to possess. And usually, it is from when one overly desires this thing/someone. [[Why is passion bad?]]. 
 
-When w ^hzk9gae are jealous of other people, we want something. We want to possess something. Now jealousy is not always bad. Jealousy is something intrinsic to human beings. Jealousy is being afraid that they will lose something that they have.
+When we are jealous of other people, we want something. We want to possess something. Now jealousy is not always bad. Jealousy is something intrinsic to human beings. Jealousy is being afraid that they will lose something that they have.
 
 Usually, we use jealousy/jealous to talk about relationships. For example, I go outside with my girlfriend to a party and she talks to this handsome guy. I feel *Jealous*. I am **afraid** that he's going to take her away from me. Now that's not necessarily bad. I can be secure in a relationship but also still feel that **fear**. 
 
