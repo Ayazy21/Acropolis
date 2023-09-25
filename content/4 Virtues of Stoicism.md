@@ -1,4 +1,3 @@
-
 ---
 title: 4 Virtues of Stoicism
 ---
